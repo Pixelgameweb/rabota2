@@ -1,1 +1,1 @@
-# rabota2
+# https://pixelgameweb.github.io/rabota2/
